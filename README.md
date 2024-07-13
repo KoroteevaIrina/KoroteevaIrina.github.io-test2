@@ -1,1 +1,1 @@
-# KoroteevaIrina.github.io/задание2
+# KoroteevaIrina.github.io
