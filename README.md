@@ -1,1 +1,1 @@
-# KoroteevaIrina.github.io.test2
+# KoroteevaIrina.github.io/test2
