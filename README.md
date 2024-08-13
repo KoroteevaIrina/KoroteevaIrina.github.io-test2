@@ -1,1 +1,0 @@
-# KoroteevaIrina.github.io
